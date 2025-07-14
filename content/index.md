@@ -1,4 +1,7 @@
-# About
+---
+title: About
+draft: false
+---
 
 Hi, im Ryan, that one raccoon you met at a kink event
 
