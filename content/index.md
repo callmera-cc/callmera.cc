@@ -3,7 +3,7 @@ title: About
 draft: false
 ---
 
-Hi, im Ryan, that one raccoon you met at a kink event
+Hi, Im Ryan, that one raccoon you met at a kink event
 
 Here are a list of places you can get in contact with me:
 
