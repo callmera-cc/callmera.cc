@@ -1,5 +1,5 @@
 ---
-draft: true
+draft: false
 title: Locktober 2025
 tags:
   - locktober
@@ -45,8 +45,8 @@ Oh dear, I might need to go smaller ✨
 Current home:  
 
 
->![note]
->These photos are available on my [TeamLocked Post](https://teamlocked.men/post/82ZPv9eTpSFXjFRN2m6fbH)
+>[!note]
+>These photos are NSFW and available on my [TeamLocked Post](https://teamlocked.men/post/82ZPv9eTpSFXjFRN2m6fbH)
 
 
 Wed, 2024-10-02 12:06
@@ -108,8 +108,8 @@ Went out the the gym with a friend, and post workout sweated in the sauna, showe
 Now if going to chill at his, watch some TV and drink some mushroom tea
 
 
->![note]
->These photos are available on my [TeamLocked Post](https://teamlocked.men/post/ftnFbwWteJqDoJh4WVma79)
+>[!note]
+>These photos are NSFW and available on my [TeamLocked Post](https://teamlocked.men/post/ftnFbwWteJqDoJh4WVma79)
 
 # Locktober 2024 - evening 6  
 
@@ -191,11 +191,12 @@ I popped the knot on my biggest toy!
 
 I've been trying to do that for months, I was plugged for about 3 hours beforehand and use some poppers to help me out, so satisfying to pull it out and ram it back in, Now all I need to do is get more consistent with it.  
 
->![note]
->These photos are available on my [TeamLocked Post](https://teamlocked.men/post/A2CseyEyL89RpGfEivMNU9)
+>[!note]
+>These photos are NSFW and available on my [TeamLocked Post](https://teamlocked.men/post/A2CseyEyL89RpGfEivMNU9)
 
 
 ![[Pasted image 20250715163352.png]]
+
 [https://weredog.co.uk/inventory/gage/](https://weredog.co.uk/inventory/gage/)
 
 Sat, 2024-10-12 11:53
@@ -267,8 +268,8 @@ Photo time
 
 Some shots from when I got anonymously gifted a set of thongs
 
->![note]
->These photos are available on my [TeamLocked Post](https://teamlocked.men/post/ASAooJSNGDiFhNsUHjHJzB)
+>[!note]
+>These photos are NSFW and available on my [TeamLocked Post](https://teamlocked.men/post/ASAooJSNGDiFhNsUHjHJzB)
 
 Sun, 2024-10-27 08:37
 
@@ -277,8 +278,8 @@ Sun, 2024-10-27 08:37
 
 Gym cage hopefully not too obvious  
 
->![note]
->These photos are available on my [TeamLocked Post](https://teamlocked.men/post/AUrjKiriytFEuss3UdXDHX)
+>[!note]
+>These photos are NSFW and available on my [TeamLocked Post](https://teamlocked.men/post/AUrjKiriytFEuss3UdXDHX)
 
 At least not as obvious as the thong, yes, I only realised after I was at the gym
 
@@ -302,8 +303,8 @@ And since I was looking longingly at the dark room, when I got home I cleaned ou
 Not sure how long this plug is going to be in, but I might stay plugged for the gym ...
 
 
->![note]
->These photos are available on my [TeamLocked Post](https://teamlocked.men/post/ozfL8n6gpMMCYAWiTWTAr8)
+>[!note]
+>These photos are NSFW and available on my [TeamLocked Post](https://teamlocked.men/post/ozfL8n6gpMMCYAWiTWTAr8)
 
 Tue, 2024-10-29 09:54
 
