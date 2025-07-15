@@ -1,10 +1,9 @@
 ---
 draft: false
-title: Locktober 2025
+title: Locktober 2024
 tags:
   - locktober
 ---
-#locktober
 
 An archive of my 2024 locktober posts originally on my [TeamLocked blog](https://teamlocked.men/@raccoon_ad/blog), any missing images will be there
 
