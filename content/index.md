@@ -13,7 +13,7 @@ Here are a list of places you can get in contact with me:
 - [BlueSky](https://bsky.app/profile/callmeryan.top)
 - [Tweeter](https://x.com/raccoon_ad)
 - Chastity 
-    - [Team Locked](https://teamlocked.men/@raccoon_ad)
+    - [Team Locked](https://teamlocked.men/@raccoon_ad) [Chastity Blog](https://teamlocked.men/@raccoon_ad/blog)
     - [Chaster](https://chaster.app/user/raccoon_ad)
     - [The 3d printed Shield cage i wear](https://cults3d.com/en/3d-model/naughties/flip-s-shield-cage-prototype)
           - One of the most comfortable cages for uncut guys available today.
