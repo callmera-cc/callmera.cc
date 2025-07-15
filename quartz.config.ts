@@ -9,7 +9,7 @@ import * as Plugin from "./quartz/plugins"
 const config: QuartzConfig = {
   configuration: {
     pageTitle: "callmeryan",
-    pageTitleSuffix: "Locked, Stock, and a leaky racc",
+    pageTitleSuffix: " | Locked, Stock, and a leaky racc",
     enableSPA: true,
     enablePopovers: true,
     analytics: {
