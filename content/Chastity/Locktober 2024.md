@@ -6,8 +6,10 @@ tags:
 ---
 #locktober
 
-An archive of my 2024 locktober posts Organly on my [TeamLocked blog](https://teamlocked.men/@raccoon_ad/blog), any missing images will be there
-# Locktober2024- day 1
+An archive of my 2024 locktober posts originally on my [TeamLocked blog](https://teamlocked.men/@raccoon_ad/blog), any missing images will be there
+
+my host doesn't allow NSFW content currently, so till i migrate i will only be able to link to external references 
+# Locktober 2024 - day 1
 
 Locked up at around midnight last night, slept ok in the cobra nano, today at work has been fine
 
@@ -19,13 +21,13 @@ Keeping it on 24-7 might reduce the amount of temptation to play, but that also 
 
 Also thinking about if I allow cumming while locked,
 
-Useing a vibrator is out of the question; to easy
+Using a vibrator is out of the question; to easy
 
-But maybe anal play, ball busting, or phantom strokeing.
+But maybe anal play, ball busting, or phantom stroking.
 
 It would be really hot to cum from sucking off a toy...
 
-# Locktober2024- day 2  
+# Locktober 2024 - day 2  
   
 Again slept fine in my cage, so that's great a good sign of things to come
 
@@ -33,7 +35,7 @@ Decided to use a strap to secure the cage for a bit, and a mesh jock (pictures l
 
 Not particularly horny yet, but that will build; been looking into advice for uncut chastity, some things I have tried before, using tape or tissue to stop your foreskin poking though, it's not ideal, I might look at custom silicone to help expose the head while in chastity, or one of [silicone nozzles chastity catheter plugs](https://siliconenozzles.com/collections/urethral-incontinence-plugs-49/products/chastity-8-9mm)  
 
-That should make peeing easier, but for now just pulling back the foreskin and makeing sure the cage is adjusted before peeing works
+That should make peeing easier, but for now just pulling back the foreskin and making sure the cage is adjusted before peeing works
 
 I still have to occasionally (once a day) unlock to re-adjust my foreskin and lock back up, particularly if I shrink a little under my cage size.
 
@@ -51,7 +53,7 @@ Wed, 2024-10-02 12:06
 
 The leaking has started 💕
 
-# Locktober2024- morning 3  
+# Locktober 2024 - morning 3  
 
 Yesterday's good sleep was a lie; I didn't wake up in the middle of the night but I did wake up early today, and with a boner that would threaten to ping my cage right off XD, couldn't pee for all the pressure built up.
 
@@ -59,7 +61,7 @@ Took the cage section off, left the ring, peed, cleaned up, smoked, Memes, cage 
 
 Let's see how today goes 😍
 
-## Locktober2024- evening 3
+## Locktober 2024 - evening 3
 
 Welp, the horny is here right on schedule, not too bad yet, just building
 
@@ -67,7 +69,7 @@ Had to adjust a bit more because of pinching, but easily manageable
 
 Not much to say, got some new jocks arriving in the mail, and some programmer socks, since it's cold :P
 
-# Locktober2024- morning 4  
+# Locktober 2024 - morning 4  
 
 Welp, the horny is here right on schedule, not too bad yet, just building
 
@@ -87,19 +89,19 @@ The rest is fuzzy ofcourse, nature of dreams
 
 I think all I got was a kiss and then kicked out so, damn.
 
-## Locktober2024- evening 4  
+## Locktober 2024 - evening 4  
 
 Work was boring couldn't do anything, but I went to a hacking meetup after, that was a good distraction.
 
 Listening to chastity pod on the train was nice, some hot descriptions of play made me strain.
 
-# Locktober2024- morning 5  
+# Locktober 2024 - morning 5  
 
 Well at about 4am I was able to cum from sniffing my jock and squeezing my balls, so that's one goal sorted ❤️ 
 
 Dispite that I've woken up still horny 💕
 
-## Locktober2024- evening  5
+## Locktober 2024 - evening  5
 
 Went out the the gym with a friend, and post workout sweated in the sauna, showered and dried off with my cage out :) feeling comfortable.
 
@@ -109,7 +111,7 @@ Now if going to chill at his, watch some TV and drink some mushroom tea
 >![note]
 >These photos are available on my [TeamLocked Post](https://teamlocked.men/post/ftnFbwWteJqDoJh4WVma79)
 
-# Locktober2024- evening 6  
+# Locktober 2024 - evening 6  
 
 Quite a quiet day, lock was ok, had to unlock for sleep halfway through the night, and spent today watching over the garden wall with a friend.
 
@@ -119,23 +121,23 @@ Anyways I cleaned up my friends floor and borrowed some shorts that make my ass 
 
 But yeah, thank goodness my work has that splash-guard, I don't want to be caught inadvertently pissing on the back of my pants at work 🤣
 
-
+---
 
 Went to a gay Sana; Covent Garden Health Spa
 
-Needed some heat to help akes from the gym, it was nice and quiet, only a fue guys. I don't usually hookup but I like some time in the Sana, and the view is nice :P
+Needed some heat to help aches from the gym, it was nice and quiet, only a few guys. I don't usually hookup but I like some time in the Sana, and the view is nice :P
 
-Some looks becuse of the cage, but it wasn't a chatty friendly vibe, just people keeping to themselves mostly, the odd bit of a fiddle going on in the corner
+Some looks because of the cage, but it wasn't a chatty friendly vibe, just people keeping to themselves mostly, the odd bit of a fiddle going on in the corner
 
 I did have the urge to suck a guy off in the steam room, but I want to be cautious about safe sex for a bit longer, and I'm not yet on prep, had i have been i probably would of went for it, another time I suppose
 
-# Locktober2024- evening 7
+# Locktober 2024 - evening 7
 
 Day has gone alright, a couple of dicksucking daydreams, And a clamps on nipples task for after work, all going well.  
 
 Mon, 2024-10-07 16:05
 
-# Locktober2024- day 8  
+# Locktober 2024 - day 8  
 
 So last night I was unbelievably horny, I could not sleep at all, and it was getting to 4am, so I decided to play a little
 
@@ -149,7 +151,7 @@ Today I went into work in my pink thigh highs, and it feels odd, I like the all 
 
 Tue, 2024-10-08 12:59
 
-# Locktober2024- morning 9  
+# Locktober 2024 - morning 9  
 
 HORNY horrnyy
 
@@ -161,7 +163,7 @@ Today however is going to be very quiet, right?
 
 Wed, 2024-10-09 10:22
 
-# Locktober2024- day 10
+# Locktober 2024 - day 10
 
 Chill day, horny morning, quiet day at work
 
@@ -171,7 +173,7 @@ Then went to see LOOK MUM NO COMPUTER live in London, got a little DIY synth to 
 
 Fri, 2024-10-11 13:56
 
-# Locktober2024- day 11
+# Locktober 2024 - day 11
 
 Planned to plug at work today, guts might have a different idea ... Maybe later tonight  
 
@@ -181,12 +183,13 @@ I finished work early and got a haircut, now I'm headed home to do little jobs a
 
 Fri, 2024-10-11 13:57
 
+---
 
 Fuckin yeah!
 
 I popped the knot on my biggest toy!
 
-I've been trying to do that for months, I was plugged for about 3 hours beforehand and use some poppers to help me out, so satisfying to pull it out and ramm it back in, Now all I need to do is get more consistent with it.  
+I've been trying to do that for months, I was plugged for about 3 hours beforehand and use some poppers to help me out, so satisfying to pull it out and ram it back in, Now all I need to do is get more consistent with it.  
 
 >![note]
 >These photos are available on my [TeamLocked Post](https://teamlocked.men/post/A2CseyEyL89RpGfEivMNU9)
@@ -197,7 +200,7 @@ I've been trying to do that for months, I was plugged for about 3 hours beforeha
 
 Sat, 2024-10-12 11:53
 
-# Locktober2024- morning 12  
+# Locktober 2024 - morning 12  
 
 I was aloud to suck my boyfriend's dick this morning, a rare treat, and he face fucked me a bit, and told me to make out with his ass while he jerked off, I fucking love when his balls bounce off my face.
 
@@ -205,17 +208,17 @@ That was the longest I've been out of the cage this month, and aII I got to do w
 
 Sat, 2024-10-12 13:51
 
-# Locktober2024- day 13  
+# Locktober 2024 - day 13  
 
 Relaxing day, nothing particularly sexy, cage was easy going, had my key frozen in the fridge instead of around my neck.
 
 Went to see a friend for some food, and went after to London night cafe (GW8F+CJ London), super awesome spot, reminds me alot of hackspaces, lots of interesting details in the environments, lots of cosy spots to read a book or just relax. Open from 6pm to 3am, most days
 
-londonnightcafe.co.uk/
+[londonnightcafe.co.uk](https://londonnightcafe.co.uk)
 
 Sun, 2024-10-13 22:19
 
-# Locktober2024- day 14-15
+# Locktober 2024 - day 14-15
 
 Not alot happened these days
 
@@ -223,7 +226,7 @@ Sometimes a week is like that
 
 Wed, 2024-10-16 15:48
 
-# Locktober2024- day 16 - 18
+# Locktober 2024 - day 16 - 18
 
 Uneventful, haven't played around
 
@@ -233,7 +236,7 @@ but health is more important than strict kink rules, just means it's going to be
 
 Sat, 2024-10-19 20:03
 
-# Locktober2024- day 22, 23
+# Locktober 2024 - day 22, 23
 
 Locked up again and went to the gym yesterday
 
@@ -243,7 +246,7 @@ Today I'm trying to wear a cheap little pink thong
 
 Damn this thing is tight against my hole... Kinda hot
 
-# Locktober2024- day 25 / 26
+# Locktober 2024 - day 25 / 26
 
 Been meaning to post all day, but it's a post event drunk post instead
 
@@ -281,7 +284,7 @@ At least not as obvious as the thong, yes, I only realised after I was at the gy
 
 Sun, 2024-10-27 08:41
 
-# Locktober2024- day 26
+# Locktober 2024 - day 26
 
 Nice relaxing day after a fun event, partner and I ordered some chicken, and made this while we waited for the food
 
@@ -290,7 +293,7 @@ Nice relaxing day after a fun event, partner and I ordered some chicken, and mad
 Sun, 2024-10-27 08:44
 
 
-# Locktober2024 - morning 29  
+# Locktober 2024 - morning 29  
 
 Last night I went to a sauna to relax, locked ofcourse, some looks, a little interest, but I was just there to soak.
 
