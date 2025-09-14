@@ -14,6 +14,7 @@ Here are a list of places you can get in contact with me:
 - [Tweeter](https://x.com/raccoon_ad)
 - Chastity 
     - [Team Locked](https://teamlocked.men/@raccoon_ad) [Chastity Blog](https://teamlocked.men/@raccoon_ad/blog)
+    - [Chastity Tracker](https://www.chastitytracker.org/pprofile.php?user=CallMeRyan&token=5322b63dda360730df842d115312c964cf50adf87cc1e3a6ae)
     - [Chaster](https://chaster.app/user/raccoon_ad)
     - [The 3d printed Shield cage i wear](https://cults3d.com/en/3d-model/naughties/flip-s-shield-cage-prototype)
           - One of the most comfortable cages for uncut guys available today.
@@ -21,7 +22,7 @@ Here are a list of places you can get in contact with me:
 
 ## Chastity tracker
 
-chastitytracker.org
+chastitytracker.org : 
 <a href="https://www.chastitytracker.org" target="_blank"><img src="https://www.chastitytracker.org/banner.php?token=1fd9d879510d87fc2760d573de96b4f8c7f25f0846ff0b19fb"></a>
 
 ## Events
