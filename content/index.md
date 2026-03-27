@@ -21,13 +21,6 @@ Here are a list of places you can get in contact with me:
           - [Designers Reddit](https://www.reddit.com/user/cuenta521/)
 
 <!-- 
-## Chastity tracker
-
-chastitytracker.org : 
-
-
-<a href="https://www.chastitytracker.org" target="_blank"><img src="https://www.chastitytracker.org/banner.php?token=1fd9d879510d87fc2760d573de96b4f8c7f25f0846ff0b19fb"></a>
-
 ## Events
 
 <iframe src="https://calendar.google.com/calendar/embed?src=73038d798d07f2d08d2b7be0d7adceb2ec1efc9863feb2dd25c75c37d9cf53a2%40group.calendar.google.com&ctz=Europe%2FLondon" style="border: 0" width="800" height="600" frameborder="0" scrolling="no"></iframe>
