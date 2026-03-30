@@ -1,4 +1,6 @@
 ---
+title: Chastity
+summary: Chastity 
 draft: false
 ---
 ![[caseOfChastityCages.jpg]]
