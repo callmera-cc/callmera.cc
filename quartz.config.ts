@@ -8,16 +8,16 @@ import * as Plugin from "./quartz/plugins"
  */
 const config: QuartzConfig = {
   configuration: {
-    pageTitle: "callmeryan",
+    pageTitle: "callmeracc",
     pageTitleSuffix: " | Locked, Stock, and a leaky racc",
     enableSPA: true,
     enablePopovers: true,
     analytics: {
       provider: 'goatcounter', 
-      websiteId: 'callmeryantop'
+      websiteId: 'callmeracc'
     },
     locale: "en-US",
-    baseUrl: "https://callmeryan.top",
+    baseUrl: "https://callmera.cc",
     ignorePatterns: ["private", "templates", ".obsidian"],
     defaultDateType: "modified",
     theme: {
