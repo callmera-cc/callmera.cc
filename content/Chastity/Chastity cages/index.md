@@ -1,6 +1,6 @@
 ---
-title: Chastity
-summary: Chastity 
+title: Chastity Cages
+summary: Chastity Cages
 draft: false
 ---
 ![[caseOfChastityCages.jpg]]
@@ -17,6 +17,7 @@ List of my chastity cages
 - random ebay metal designs 
 - [khd-x3-espresso](https://denyingthumper.com/2015/01/02/khd-x3-espresso-review/) no idea if this is still available, because shapeways died 
 - [OXBALLS Cock-Lock Cock Cage Clear](https://regulation.co.uk/collections/chastity/products/p-8282)
+- Flat Pink cage with intergrated cylinder pin lock and head cups
  
 
 and many more i have given away or threw out 

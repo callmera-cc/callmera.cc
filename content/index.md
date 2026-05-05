@@ -1,9 +1,9 @@
 ---
-title: Call Me Ryan - About 
+title: Call Me Racc - About 
 draft: false
 ---
 
-Hi, I'm Ryan, that one raccoon you met at a kink event
+Hi, I'm Racc, that one raccoon you met at a kink event
 
 Here are a list of places you can get in contact with me:
 
